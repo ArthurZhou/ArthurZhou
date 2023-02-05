@@ -1,3 +1,3 @@
-Distributed student
+I own shitty codes :)
 
-[Magic Portal](mailto:arthurzhou_atwork@yeah.net)
+[Send me more](mailto:arthurzhou_atwork@yeah.net)
