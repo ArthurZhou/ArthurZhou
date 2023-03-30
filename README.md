@@ -1,3 +1,3 @@
-I own shitty codes :)
+Shit maker
 
-[Send me more](mailto:arthurzhou_atwork@yeah.net)
+Contact: [contact@d2lib.com](mailto:contact@d2lib.com)
